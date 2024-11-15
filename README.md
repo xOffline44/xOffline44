@@ -1,0 +1,5 @@
+- 👋 Cześć, Jestem @xOffline44
+- 👀 Interesuje się jazdą na motorze, skryptami, pluginami i ogólnie skryptowaniem i graniem
+- 🌱 Aktualnie czytam książkę nwm jakąś lekture
+- 💞️ Szukam partnerów na discordzie
+- 📫 Kontakts ze mną: discord lunaxon.
